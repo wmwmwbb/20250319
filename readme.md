@@ -22,4 +22,4 @@
 
 [Github官网](https://github.com “我在这！”)
 
-![截屏](../入学须知：科林阶段路线图.PNG)
+![截屏](https://picui.ogmua.cn/s1/2026/03/17/69b9376e3bcaa.webp "点击")
